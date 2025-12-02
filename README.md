@@ -23,3 +23,9 @@ You may host it
 You may NOT remove credits
 You may NOT re-sell or modify and claim as yours
 If I see my name removed → your repo gets DMCA’d on sight
+
+
+
+HELP CONTRIBUTOR;
+
+AURAZz (applyed for access)
